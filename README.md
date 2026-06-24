@@ -98,7 +98,7 @@ location-based features (longitude/latitude) to improve prediction accuracy.
 
 **Nishitha M**  
 MBA — AI & Data Analytics (SAS)| SVYASA University, Bengaluru  
-📧🔗https://www.linkedin.com/in/nishitha-m
+📧🔗https://www.linkedin.com/in/nishitha-m-3725b540a?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 
 **Supervised by**
